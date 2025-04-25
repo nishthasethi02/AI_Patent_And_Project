@@ -1,1 +1,0 @@
-# AI_Patent_And_Project
